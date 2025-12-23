@@ -1,6 +1,6 @@
 👋 Hi, I’m @Kaangorenn.
 
-🎓 I'm 21 years old and recently graduated from ROC Amsterdam Zuidoost with a degree in Software Development.
+🎓 I'm 22 years old and recently graduated from ROC Amsterdam Zuidoost with a degree in Software Development.
 
 👀 I’m interested in airsoft, riding my motorcycle, gaming, making music, and of course coding.
 
